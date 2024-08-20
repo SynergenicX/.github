@@ -1,4 +1,4 @@
-# Synergenix Software Solutions
+# SynergenicX
 
 **Empowering Innovation, Delivering Excellence**
 
